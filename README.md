@@ -1,4 +1,4 @@
 Hey itz yekanaath✌🏻
-Currently pursuing bsc computer science👨‍💻
+Currently pursuing MCA👨‍💻
 In SRM university🎓
 focused in web development 🎯
